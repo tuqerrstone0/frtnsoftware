@@ -9,7 +9,7 @@
 ### 2) Precision aiming: Enhance your shooting accuracy with our advanced aiming feature, guaranteeing every shot hits the mark and establishing you as an unstoppable force.
 
 ### 3) Tactical awareness: Utilize Frtnsft to play with heightened awareness, giving you the upper hand as you navigate through the chaos of the Fortnite battlefield.
-
+![4260c827-9ca2-451e-a2d3-7405813b3634](https://github.com/tuqerrstone0/frtnsoftware/assets/157100328/cea3eabf-14c7-4e31-94bc-db44227a29d7)
 ## Rise to new heights in Frtn alongside elite players who trust in the power of Frtnsft!
 
 ## Follow these straightforward steps:
